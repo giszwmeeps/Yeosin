@@ -3,7 +3,7 @@ OC profile
 
 여신   YEOSIN  
 
---
+---
   
               𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
@@ -34,7 +34,7 @@ When treated nicely, Yeosin returns that kindness by replying through action, if
 **Yeosin, Is Two faced. do not be tricked.**  
 Yeosin keeps secrets, thoughts no one knows, he might look like he's comfortable with you outside. But Yeosin? Two colors, two wings, two looks, and two faces.  
 
---
+---
 
 -  
               𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
@@ -81,7 +81,7 @@ Favorites
 ( Place              :  Aquarium/Beach  
 ( Job                :  Model  
 
---
+---
               𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
  **Lore**  
